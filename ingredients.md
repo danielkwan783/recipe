@@ -1,4 +1,5 @@
-Ingredients: 
+Ingredients for 4 6-inch pancakes: 
+
 105 g All-purpose Flour
 5 g Baking Powder
 1 g Baking Soda
